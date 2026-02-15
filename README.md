@@ -1,9 +1,7 @@
 - 👋 Hi, I’m @Adam-Switalla
-- 👀 I’m interested in star wars, roblox, minecraft, art, reading, cooking
+- 👀 I’m interested in star wars, roblox, minecraft, art, reading, cooking, gorillaz
 - 🌱 I’m currently learning Digital technology, engllish, fodd tech, art, media studies etc
-- 💞️ I’m looking to collaborate on pp
 - 📫 How to reach me https://www.youtube.com/@Litlight1/featured
-- 😄 Pronouns: your/mother
 - ⚡ Fun fact: I am a youtuber pls sub
 
 <!---
